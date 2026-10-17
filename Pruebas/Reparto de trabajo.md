@@ -1,0 +1,1 @@
+especificar qué parte le tocó a cada miembro del grupo
